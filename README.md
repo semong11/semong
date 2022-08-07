@@ -1,0 +1,2 @@
+# semong
+amora
